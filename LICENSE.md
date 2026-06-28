@@ -1,4 +1,4 @@
-# 
+# Mejor Fences extensiones para Mac OS | Principal Fences extensiones para PC Windows. Con soporte de arrastrar y soltar y escaneo profundo — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
